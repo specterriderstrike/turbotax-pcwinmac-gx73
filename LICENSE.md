@@ -1,4 +1,4 @@
-# 
+# Premium TurboTax scripts para Mac OS | Oficial TurboTax scripts para PC Windows. Con herramientas de anotación y contabilidad de proyectos — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
